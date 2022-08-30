@@ -1,0 +1,4 @@
+- 👋 Welcome to my WORD 
+-    Estudante de cienca da computação (4° semestre) na USC - Universidade Sagrada Coração
+-    Envolvido com tecnologia desde pequeno e apaixoando por jogos
+-    Aprendendo mais cada dia que passa
